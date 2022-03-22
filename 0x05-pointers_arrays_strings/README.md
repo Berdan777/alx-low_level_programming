@@ -1,0 +1,1 @@
+abela teru tenkol temrehal
